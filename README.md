@@ -1,5 +1,5 @@
 # Sunum Linki 30/01/2025
-https://docs.google.com/presentation/d/1ZUI3V_Fk3giuTgf72w2amGCX3MBN_8J2/edit#slide=id.g32973551539_0_146
+https://docs.google.com/presentation/d/1ZUI3V_Fk3giuTgf72w2amGCX3MBN_8J2/edit?usp=sharing&ouid=110069465522213182638&rtpof=true&sd=true
 # DixHalpike Manevrası
 https://drive.google.com/file/d/1-DKdp0bPL3Lj9uICou2ENoNPWOSZ0TQB/view?usp=drive_link
 # Epley Manevrası
