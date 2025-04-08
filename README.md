@@ -6,3 +6,6 @@ https://drive.google.com/file/d/1-DKdp0bPL3Lj9uICou2ENoNPWOSZ0TQB/view?usp=drive
 https://drive.google.com/file/d/1-0BAZjPdbYdaBiWb5GIj8b98STH3-nAW/view?usp=drive_link
 # Semont Manevrası
 https://drive.google.com/file/d/1-8D9HtA_LTDrRK4rbLub2FJhlaEIVmn1/view?usp=drive_link
+
+# Sunum Linki 08/04/2025
+https://docs.google.com/presentation/d/1XhtCS6EN26pxWi9p9al7pJDfS9mIUWZmWps83Jc3Euk/edit?usp=sharing
