@@ -9,3 +9,6 @@ https://drive.google.com/file/d/1-8D9HtA_LTDrRK4rbLub2FJhlaEIVmn1/view?usp=drive
 
 # Sunum Linki 08/04/2025
 https://docs.google.com/presentation/d/1XhtCS6EN26pxWi9p9al7pJDfS9mIUWZmWps83Jc3Euk/edit?usp=sharing
+
+# Sunum Linki 15/09/2026
+https://drive.google.com/file/d/1MkyBLxP4MS2OtYJo-CyXg3W4XCyYmow3/view?usp=drive_link
